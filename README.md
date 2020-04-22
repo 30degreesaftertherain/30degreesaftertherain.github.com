@@ -1,2 +1,2 @@
-# 30degreesaftertherain.github.com
+# 30degreesaftertherain.github.io
 Journey in perspective
